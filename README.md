@@ -1,2 +1,2 @@
 # research
-some of my researches an axplainations
+some of my researches an explainations
